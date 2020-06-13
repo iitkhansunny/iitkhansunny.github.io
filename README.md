@@ -1,1 +1,1 @@
-# iitkhansunny.github.io
+# itkhansunny.github.io
